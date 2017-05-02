@@ -8,7 +8,7 @@ You have chosen the Native Sons and Daughters Programs&trade; as a way to grow t
 You alone as a parent make these decisions. May you as parent and child make many happy memories together as
 members of the Native Sons and Daughters Programs&trade;.
 
-Copyright &copy; 2003, 2010, 2015 National Longhouse, Ltd. All rights reserved.
+Copyright &copy; 2003, 2010, 2015, 2017 National Longhouse, Ltd. All rights reserved.
 International copyright secured. No part of this book may be reproduced, stored in
 a retrieval system, or transmitted in any form or by any means, now known or
 hereafter invented, electronic, mechanical, photocopying, xerography, recording, or
