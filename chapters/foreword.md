@@ -1,4 +1,4 @@
-# Foreward
+# Foreword
 
 Welcome!! This handbook is designed to give each family a look at some of the most important parts and information about the Native Sons and Daughters Programs&trade;. Much of the information in this book is also contained in the larger [Native Sons and Daughters Programs&trade; manual](http://www.nationallonghouse.org/program-manual) and other resource materials. By giving this information to each family, it shares some of the basic information, and will hopefully spawn creativity with individual members, and in the tribal groups, which are the heart of the program. Share this book together with your child.
 
